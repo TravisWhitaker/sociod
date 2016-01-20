@@ -1,0 +1,2 @@
+# sociod
+Sociopathic Power Structure
